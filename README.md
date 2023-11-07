@@ -1,4 +1,4 @@
-Я студент группы сса-419 тут будут мои работы# SSA-419islam
+Я студент группы сса-419 тут будут мои работы# SSA-419islam  
 ![aqaHCdv](https://github.com/ISLAMSSA-419/SSA-419islam/assets/148772612/70b4d359-6cc7-49d4-a2b5-39a17c23380f)
 ![aqaHCdv](https://github.com/ISLAMSSA-419/SSA-419islam/assets/148772612/70b4d359-6cc7-49d4-a2b5-39a17c23380f)
 ![aqaHCdv](https://github.com/ISLAMSSA-419/SSA-419islam/assets/148772612/70b4d359-6cc7-49d4-a2b5-39a17c23380f)
